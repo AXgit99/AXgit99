@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AXgit99
+- 👋 Hi, I’m babygirl
 - 👀 I’m interested in exploring new technologies and contributing to open-source projects.
 - 🌱 I’m currently learning machine learning and deep learning techniques.
 - 💞️ I’m looking to collaborate on projects related to artificial intelligence and software development.
