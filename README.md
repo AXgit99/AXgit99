@@ -1,7 +1,11 @@
-- 👋 Hi, I’m babygirl
-- 👀 I’m interested in exploring new technologies and contributing to open-source projects.
-- 🌱 I’m currently learning machine learning and deep learning techniques.
-- 💞️ I’m looking to collaborate on projects related to artificial intelligence and software development.
-- 📫 How to reach me: Feel free to contact me through email at [ictradeax@gmail.com]
-- 😄 Pronouns: mewwww
-- ⚡ Fun fact: I enjoy hiking and discovering hidden gems in nature during my free time.
+validator
+researcher
+trader
+3 years of experience
+
+- Telegram: https://t.me/ruaninja           
+- Discord : aixuan99cute                                                
+- Github: https://github.com/AXgit99
+- X: https://twitter.com/AiXuanTran64948 
+- Services:                         
+- email: ictradeax@gmail.com        
