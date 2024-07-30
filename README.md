@@ -3,7 +3,7 @@ researcher
 trader
 3 years of experience
 
-- Telegram: https://t.me/ruaninja           
+- Telegram: https://t.me/AXmewmew       
 - Discord : aixuan99cute                                                
 - Github: https://github.com/AXgit99
 - X: https://twitter.com/AiXuanTran64948 
