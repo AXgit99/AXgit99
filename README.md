@@ -1,7 +1,6 @@
 validator
 researcher
-trader
-3 years of experience
+lucky trader
 
 - Telegram: https://t.me/AXmewmew       
 - Discord : aixuan99cute                                                
